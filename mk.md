@@ -1,1 +1,1 @@
-I love Jiu Jitsu. My favourite submission is the triangle choke.
+I love Jiu Jitsu. My least favourite submission is the triangle choke.
